@@ -1,4 +1,4 @@
-# Ecommerce website Elegant hand ⌚
+# Ecommerce website Wrist Watch ⌚
 
 ### Watchmaking ⌚
 
